@@ -1,4 +1,4 @@
-#TheWired.zone
+<h1 align="center"> TheWired.zone </h1>
 
 <p align="center">
 Welcome to TheWired.zone! Our goal is to create a small Anime-based community of which is friendly. Due to the fact that I hand-pick people to join this instance, everybody will be over 18, so you must act like it.
