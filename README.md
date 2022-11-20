@@ -16,6 +16,8 @@ Without further ado,
 
 > Rule 4.) Steer clear of posting any gory imagery, such as beheadings, self harm, etc. Depending on the severity of the image/video, the punishment will be decided at that time.
 
+> Rule 5.) Do not "Renote" Lolicon hentai. Due to the fact that I'm unable to force who you do and don't follow, I can at least enforce this rule. You will have three strikes if deemed "certainly a loli".  
+
 <p align="center">
 I appreciate you taking the time to read this. 
 </p>
