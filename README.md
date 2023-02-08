@@ -5,9 +5,6 @@ Welcome to TheWired.zone! Our goal is to create a small slice-of-life based comm
 </p>
 
 <p align="center">
-It seems some people are seeing some hentai of all varieties on their timeline -- the reason for this, is one or more users are following said bots, but it's entirely anonymous -- so I'm unable to figure out who it is. So, I ask that you attempt to ignore it, or if it bothers you, to block said bot.
-</p>
-<p align="center">
 You'll have three strikes for most rules, if you _do_ end up getting 3 strikes, you will be banned. Strikes will individually last up to 3 months depending on the offense, as well as the context. Be careful with your actions in regards to these rules.
 Without further ado,
 </p>
