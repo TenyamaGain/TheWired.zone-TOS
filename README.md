@@ -1,7 +1,7 @@
 <h1 align="center"> TheWired.zone </h1>
 
 <p align="center">
-Welcome to TheWired.zone! Our goal is to create a small Anime-based community of which is friendly. Due to the fact that I hand-pick people to join this instance, everybody will be over 18, so you must act like it.
+Welcome to TheWired.zone! Our goal is to create a small slice-of-life based community where all of which is friendly. Due to the fact that I hand-pick people to join this instance, everybody will be over 18, so please act like it.
 </p>
 
 <p align="center">
@@ -22,5 +22,5 @@ Without further ado,
 
 > Rule 5.) Just use common sense and don't be a dick.
 <p align="center">
-I appreciate you taking the time to read this. 
+I appreciate you taking the time to read this! Have fun on TheWired.zone!
 </p>
