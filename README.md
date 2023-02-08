@@ -12,16 +12,15 @@ You'll have three strikes for most rules, if you _do_ end up getting 3 strikes, 
 Without further ado,
 </p>
 
-> Rule 1.) Do not, in a serious manner, harrass other members. If you're caught harassing other members non-jokingly, your strikes will last up to 6 months per, depending on the severity. If it's too severe, you will only have one other chance rather than 3.
+> Rule 1.) Do not, in a serious manner, harrass other members. If you're caught harassing other members non-jokingly, or without strict consent, your strikes will last up to 6 months per, depending on the severity. If it's too severe, you may have less chances rather than 3.
 
-> Rule 2.) Do not post any minor-oriented photos (People below the age of 16), NSFW or otherwise. If you do so, and it is NSFW, you will be permabanned on the spot. However, if it is *not* NSFW, you will be only let off with a warning. 
+> Rule 2.) Make sure all NSFW photos are marked as such. If you are caught with an NSFW photo that isn't marked as such, please delete it and, if you wish, you may reupload it with the NSFW warning.
 
-> Rule 3.) Make sure all NSFW photos are marked as such. If you are caught with an NSFW photo that isn't marked as such, please delete it and, if you wish, you may reupload it with the NSFW warning.
+> Rule 3.) Steer clear of posting any gory imagery, such as beheadings, self harm, etc. Depending on the severity of the image/video, the punishment will be decided at that time.
 
-> Rule 4.) Steer clear of posting any gory imagery, such as beheadings, self harm, etc. Depending on the severity of the image/video, the punishment will be decided at that time.
+> Rule 4.) Do not "Renote" or post any sort of underage imagery. You will have three strikes if deemed "certainly a loli" or proven underage.  
 
-> Rule 5.) Do not "Renote" or post any sort of Lolicon hentai. Due to the fact that I'm unable to force who you do and don't follow, I can at least enforce this rule. You will have three strikes if deemed "certainly a loli".  
-
+> Rule 5.) Just use common sense and don't be a dick.
 <p align="center">
 I appreciate you taking the time to read this. 
 </p>
