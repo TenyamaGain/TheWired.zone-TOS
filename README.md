@@ -1,4 +1,4 @@
-<h1 align="center"> TheWired.zone TOS </h1>
+<h1 align="center"> TheWired.zone Terms of Service </h1>
 
 <p align="center">
 Welcome to TheWired.zone! Our goal is to create a small slice-of-life based community where all of which is friendly. Due to the fact that I hand-pick people to join this instance, everybody will be over 18, so please act like it.
